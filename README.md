@@ -1,3 +1,4 @@
 # Wasssup People
 
-I learned how to make changes in GITHUB IG
+Hi everyone how are you?
+
