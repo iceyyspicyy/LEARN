@@ -1,3 +1,3 @@
-#Learnigng what GITHUB is all about
+# Wasssup People
 
-This is what is going to be seen by yll!
+I learned how to make changes in GITHUB IG
